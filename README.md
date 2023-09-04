@@ -1,0 +1,1 @@
+# Ichiran-kuji.net
